@@ -1,4 +1,4 @@
-# All my certification course certificates
+# All of my certifications
 
 ## Profiles
 - https://www.coursera.org/user/74ebc257d2010f648b4c91894d9038bc
